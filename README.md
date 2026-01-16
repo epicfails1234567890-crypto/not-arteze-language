@@ -1,3 +1,3 @@
 # not-arteze-language
 
-Lenguaje exclusivo para despojos y cánceres destripados q no saben programar en js como yo.
+Lenguaje el cual no es del pendejo ArtEze q onda también acá por estas catacooombas.
